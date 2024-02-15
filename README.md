@@ -2,7 +2,7 @@
 Captured Moments: Us
 
 
-#My love, 
+# My love, 
 
      In our journey through life, you’ve been with me on both ups and downs. You've been my partner, we are discovering new places, and taking steps toward our dreams. I’m grateful for the simple things, our laughters, our conversations during walks, and the moments we celebrate together. Every time that we are together, I feel the completeness of our relationship.
 
